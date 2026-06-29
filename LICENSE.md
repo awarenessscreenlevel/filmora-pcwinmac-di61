@@ -1,4 +1,4 @@
-# 
+# Premium Filmora plantillas para Mac OS | Ligero Filmora plantillas para PC Windows. Con reverberación y vista previa en tiempo real — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
